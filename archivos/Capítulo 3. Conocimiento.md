@@ -1,5 +1,4 @@
 
-![IMG_2747.jpg]
 Respuestas de profesionales:
 
  ##### 1. HMH -  Profesor de Matemática:
